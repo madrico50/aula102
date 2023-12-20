@@ -1,0 +1,2 @@
+# aula102
+qwertyuiopasdfghjklçzxcvbnm
